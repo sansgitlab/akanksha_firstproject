@@ -1,2 +1,2 @@
 Tanya is good girl. 
-Tanya is just awsome.
+Tanya is just awsome....
